@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @MoonCST!
+- 👀 I’m interested in Web development!
+- 🌱 I’m currently learning HTML, CSS, and soon JavaScript.
+- 💞️ I’m looking to collaborate on nothing currently.
+- 📫 How to reach me, my discord was taken down, so you can email me soon when i setup a business email.

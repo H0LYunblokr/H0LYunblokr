@@ -1,5 +1,5 @@
-- 👋 Hi, I’m @MoonCST!
-- 👀 I’m interested in Web development!
-- 🌱 I’m currently learning HTML, CSS, and soon JavaScript.
-- 💞️ I’m looking to collaborate on nothing currently.
-- 📫 How to reach me, my discord was taken down, so you can email me soon when i setup a business email.
+- 👋 Hi, I’m Copium!
+- 👀 I’m interested in Fucking shit up on accident.
+- 🌱 I’m currently learning JS, Java, Python, Etc.
+- 💞️ I’m looking to collaborate on EVERYTHING Currently. [HMU ILL HELP YOU OUT!!!]
+- 📫 How to reach me, my discord was taken down, so you can email me @ VecksMinecraft@outlook.com [some rando microsoft account i setup]
